@@ -1,0 +1,82 @@
+# Army Of Lovers – Crucified (Radio Edit)
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:00.65] I'm crucified
+[00:03.35] Crucified like my saviour
+[00:07.87] Saintlike behaviour
+[00:11.82] A lifetime I prayed
+[00:21.32] 
+[00:15.81] I'm crucified
+[00:19.21] For the holy dimension
+[00:23.54] Godlike ascension
+[00:27.56] Heavens away
+[00:33.56] 
+[00:35.52] I've seen the deepest darkness
+[00:37.52] And wrestled with gods
+[00:39.43] Ride the noble harness
+[00:41.61] Raining cats and dogs
+[00:43.67] I stand before my maker
+[00:45.52] Like Moses on the hill
+[00:47.33] My Guinness record breaker
+[00:49.23] I abide your will
+[00:57.73] 
+[00:51.38] The first of reciters
+[00:53.35] I saw eternal light
+[00:55.39] Best of vocal fighters
+[00:57.24] Beyond human sight
+[00:59.39] Where thorns are a teaser
+[01:01.07] I've played a double jeux
+[01:03.28] Yherushalaim at easter
+[01:05.18] I cry I pray mon dieu
+[01:06.90] I cry I pray mon dieu
+[01:17.40] 
+[01:08.93] I'm crucified
+[01:11.87] Crucified like my saviour
+[01:16.56] Saintlike behaviour
+[01:20.46] A lifetime I prayed
+[01:29.96] 
+[01:24.41] I'm crucified
+[01:27.84] For the holy dimension
+[01:32.52] Godlike ascension
+[01:36.27] Heavens away
+[01:42.27] 
+[01:44.41] Prophets I've been reading
+[01:46.45] Stories I've been told
+[01:48.58] Before I end my breathing
+[01:50.43] I travel in the soul
+[01:52.39] Where thorns are a teaser
+[01:54.15] I've played a double jeux
+[01:56.16] Yherushalaim at easter
+[01:58.11] I cry I pray mon dieu
+[02:00.28] I cry I pray mon dieu
+[02:02.17] I cry I pray mon dieu
+[02:12.67] 
+[02:04.09] Adieu mon dieu
+[02:11.09] 
+[02:05.91] I'm crucified
+[02:08.90] Crucified like my saviour
+[02:13.52] Saintlike behaviour
+[02:17.59] A lifetime I prayed
+[02:27.09] 
+[02:21.56] I'm crucified
+[02:24.72] For the holy dimension
+[02:29.33] Godlike ascension
+[02:33.36] Heavens away
+[02:39.36] 
+[02:45.50] I'm crucified
+[02:48.51] For the holy dimension
+[02:52.94] Godlike ascension
+[02:56.80] Heavens away
+[03:02.80] 
+[03:00.94] I'm crucified
+[03:04.12] Crucified like my saviour
+[03:08.67] Saintlike behaviour
+[03:12.51] A lifetime I prayed
+[03:22.01] 
+[03:16.63] I'm crucified
+[03:20.32] For the holy dimension
+[03:24.43] Godlike ascension
+[03:28.31] Heavens away
+```
